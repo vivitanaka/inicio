@@ -1,0 +1,2 @@
+# inicio
+reiniciando os estudos
